@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning college
 - 💞️ I’m looking to collaborate on....
 - 📫 How to reach me TG @********
-- 😄 Pronouns: ...
+- 😄 Pronouns: Nikitos
 - ⚡ Fun fact: 
 
 <!---
